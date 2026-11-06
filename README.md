@@ -1,6 +1,6 @@
 <img src="https://i.redd.it/pa049v3v4tfc1.jpeg" width=320>
 
-I havent figure out how to do all this yet
+Yeah I aint plan to make this stuff fancy
 
 Anyway pony town informations: 
 
