@@ -1,4 +1,4 @@
-<img src="https://i.redd.it/pa049v3v4tfc1.jpeg" width=320>
+<img src="https://i.pinimg.com/1200x/7d/ad/e9/7dade99dc99c458ba606a7e97e791278.jpg" width=300>
 
 Yeah I aint plan to make this stuff fancy
 
