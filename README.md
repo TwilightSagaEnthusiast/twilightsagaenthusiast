@@ -8,7 +8,7 @@ Anyway pony town fyi:
 
 -If to catch me it's best to whisper. I'm a free spirit you know!
 
--No DNI because world is big its not like I walk into strange individuals everyday and if I do I'd flee away
+-No DNI because world is big its not like I walk into strange individuals everyday and if I do I'd execute right on where you standin
 
 -Beware of me because I'm the type of #notreadallthat so you better be talk me about yourself my face then I be listening. I don't int first if you have a lot for me to read
 
