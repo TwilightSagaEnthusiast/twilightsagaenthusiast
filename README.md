@@ -10,7 +10,9 @@ Anyway pony town fyi:
 
 -No DNI because world is big its not like I walk into strange individuals everyday and if I do I'd flee away
 
--Beware of me because I'm the type of #notreadallthat so you better be talk me about yourself my face then I be feet kicking and listening
+-Beware of me because I'm the type of #notreadallthat so you better be talk me about yourself my face then I be listening. I don't int first if you have a lot for me to read
+
+-I welcome all my hoes who welcomes me
 
 -I don't moot. I usually friends people that I talk to daily or on occassions
 
