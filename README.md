@@ -16,4 +16,14 @@ Anyway pony town fyi:
 
 -I don't moot. I usually friends people that I talk to daily or on occassions
 
+***
+
+<p align="center">
+  Current hyperfixations:
+
+  All the young dudes,
+  
+  actually yeah nothing more i focus on one specific thing for a while or until I finish reading it
+</p>
+
 
