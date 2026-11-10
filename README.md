@@ -19,11 +19,10 @@ Anyway pony town fyi:
 ***
 
 <p align="center">
-  Current hyperfixations:
+  Current reads and watch:
 
-  All the young dudes,
+  All the young dudes, Rick and Morty
   
-  actually yeah nothing more i focus on one specific thing for a while or until I finish reading it
 </p>
 
 
