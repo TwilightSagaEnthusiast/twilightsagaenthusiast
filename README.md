@@ -14,7 +14,7 @@ Anyway pony town fyi:
 
 -I welcome all my hoes who welcomes me
 
--I don't moot. I usually friends people that I talk to daily or on occassions. I have a special spot for my disabled fuckers and patiently waits until they're able and mentally ready again
+-I don't moot. I usually friends people that I talk to daily or on occassions. I have a special spot for my disabled fuckers and patiently waits until they're abled and mentally ready again
 
 ***
 
