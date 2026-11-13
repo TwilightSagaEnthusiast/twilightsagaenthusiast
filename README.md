@@ -16,6 +16,8 @@ Anyway pony town fyi:
 
 -I don't moot. I usually friends people that I talk to daily or on occassions. I have a special spot for my disabled fuckers and patiently waits until they're abled and mentally ready 
 
+![](https://i.pinimg.com/originals/a4/cc/13/a4cc13ef50ae2ddd60cfe7f4ef6f16ad.gif)
+
 ***
 
 <p align="center">
